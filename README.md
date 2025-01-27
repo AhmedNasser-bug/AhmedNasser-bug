@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on DSA research, Game development.
 - 📫 How to reach me : facebook, email me or just call my number its found literally everywhere.
 - 😄 Pronouns: uhhh im just a man.
-- ⚡ Fun fact: Code optimization is ADDICTING.
+- ⚡ Fun fact: Code optimization is ADDICTIVE.
 - 💎Current Addiction: Game dev.
 
 <!---
